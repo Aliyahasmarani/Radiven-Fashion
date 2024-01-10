@@ -7,10 +7,3 @@
 |VERONIKA NATALIA KALA|312210690|TI.22.A2|OOP|
 
 
-halow
-
-hdiwjdbkd
-jshajsiif
-beie9mf
-i82i3hr8ksb
-b2uodoehri
